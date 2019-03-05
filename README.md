@@ -1,2 +1,1 @@
-# Dispwnl-s-codes
-code
+OUO OVO OAO
